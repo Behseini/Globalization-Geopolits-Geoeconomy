@@ -7,4 +7,4 @@ Dissolution of the Soviet Union -August 1991 coup against Gorbachev sealed the f
 ## Game of Lands - Geopolitics
 ## Power of Lands - Geoeconommy
 ## Modern Wars - Hacking - Proxy War
-## The day after tommorrow
+## The Day after Tommorrow
